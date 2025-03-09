@@ -1,1 +1,1 @@
-### More open source repos coming soon, well depending on music mood !
+### More open source repos coming soon depending on music mood !
